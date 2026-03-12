@@ -1,1 +1,0 @@
-# Soulstride-privacy-policy
